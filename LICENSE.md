@@ -1,4 +1,4 @@
-# 
+# Profissional momentum trading bot extensões for Mac OS | Ultimato momentum trading bot extensões for PC Windows. Featuring estratégia de reversão à média and API de exchange centralizada — optimized for maximum performance.
 
 
 
